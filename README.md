@@ -1,2 +1,2 @@
-# Jornada-do-her-i-
+# Jornada-do-heroi
 Aprendizado 
